@@ -1,3 +1,3 @@
 ✌️
-# 1_Private
+# Mini Projects
 
